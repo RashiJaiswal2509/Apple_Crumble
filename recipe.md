@@ -1,0 +1,1 @@
+Mix the apples, melted butter, sugar, flour, apple juice, cinnamon and salt in a large bowl. Spoon the filling into the chilled pie crust. Pat the crumb mixture on top. Bake the pie on the hot baking sheet until lightly browned, about 30 minutes.
